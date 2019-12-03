@@ -1,1 +1,1 @@
-Zajęcia 09.12.2019 zostają przeniesione na poniedziałek 16.12.2019. Odbędą się w godzinach 15:20-16:50 do sali G-107. 
+Zajęcia 09.12.2019 zostają przeniesione na poniedziałek 16.12.2019. Odbędą się w godzinach 15:20-16:50 w sali G-107. 
